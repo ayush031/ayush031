@@ -2,4 +2,4 @@
 
 # This account is moved to [Aykansal](https://github.com/aykansal) Github Account
 
-## Click to Redirect 🖱️
+## [Click to Redirect](https://github.com/aykansal) 🖱️
